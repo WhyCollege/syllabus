@@ -102,7 +102,7 @@ Reading:
 Writing:
 + Personal narrative writing assignment, draft 1
 
-Workshop: sentences
+Workshop: Oh God I'm on the General Education Committee game
 
 #### Week 7 (March 4, 2019): Residential Life and Moral Citizenship
 
